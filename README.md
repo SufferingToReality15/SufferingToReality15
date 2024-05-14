@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @SufferingToReality15
+- 👀 I’m interested in playing Geometry Dash, piano, and programming silly stuff
+- 🌱 I’m currently learning Python and HTML, sooner or later I will learn CSS and JavaScript
+- 💞️ I’m looking to collaborate on nothing, I'm all solo
+- 📫 How to reach me? You don't, leave
+- 😄 Pronouns: He/Him/VirginAirlinesLeftWingAileron
+- ⚡ Fun fact: My hardest completed level in Geometry Dash is Magma Bound
